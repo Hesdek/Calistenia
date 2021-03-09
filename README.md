@@ -1,3 +1,0 @@
-# Calistenia
-
-Link video Youtube: 
